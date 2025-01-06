@@ -1,6 +1,6 @@
 # 👋 Hi there! I'm Robel.
 
-Welcome to my GitHub profile! 
+
 -I'm a passionate developer, always eager to learn new things and share my projects with the world. 🚀
 
 - 🌱 I’m currently learning **Frontend libraries**
