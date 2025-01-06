@@ -37,8 +37,8 @@
 
 ### 📞 Reach Out
 
-- www.linkedin.com/in/robel-yisehak-2597a1321
-- https://x.com/RobelYISEHAK15?t=0XI5fD_tsOsOeZAHNRI6ow&s=09
+- [linkedIn](www.linkedin.com/in/robel-yisehak-2597a1321)
+- [twitter](https://x.com/RobelYISEHAK15?t=0XI5fD_tsOsOeZAHNRI6ow&s=09)
 
 ---
 
